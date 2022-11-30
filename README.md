@@ -1,1 +1,1 @@
-Promo code : SALE50
+Promo code : SALE54
